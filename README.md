@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Cyphero264
-- 👀 I’m interested in nothing
+- 👀 I’m interested in TCG & manga
 - 🌱 I’m currently learning stats
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me: natepham2005@gmail.com
